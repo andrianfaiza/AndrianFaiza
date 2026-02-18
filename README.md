@@ -1,4 +1,4 @@
-# Hi, I'm AndrianFaiza 👋
+# Hi, I'm Andrian Faiza 👋
 
 🎓 Student | 💻 Software Development
 
